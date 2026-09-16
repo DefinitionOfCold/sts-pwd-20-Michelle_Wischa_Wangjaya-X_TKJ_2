@@ -35,12 +35,12 @@
 > * Email: consumer@mayora.co.id
 
 ### Tautan Resmi & Media Sosial
-* [Website Resmi](https://www.mayoraindah.co.id/).
+* [Website Resmi](https://www.mayoraindah.co.id/)
 * [Instagram Resmi](https://www.instagram.com/mayoraofficial?stkn=azBlcXM1Mzh1aDQ3)
 
 ### Daftar Sumber Referensi (3)
-1. [Website Resmi Pastinya](https://www.mayoraindah.co.id/).
-2. [Halaman Visi dan Misi](https://www.mayoraindah.co.id/content/visi-misi-perusahaan-35).
+1. [Website Resmi](https://www.mayoraindah.co.id/)
+2. [Halaman Visi dan Misi](https://www.mayoraindah.co.id/content/visi-misi-perusahaan-35)
 3. [Halaman Identitas](https://www.mayoraindah.co.id/landing/Perusahaan-1)
 
 ### Pernyataan Integritas Akademik
