@@ -31,6 +31,8 @@
 ### Kontak / Alamat 
 #### PT Mayora Indah Tbk.
 > Gedung Mayora Jl. Tomang Raya Kav. 21–23, Jakarta Barat
+> * Telepon: +62 (21) 806 377 04
+> * Email: consumer@mayora.co.id
 
 ### Tautan Resmi & Media Sosial
 * [Website Resmi](https://www.mayoraindah.co.id/).
