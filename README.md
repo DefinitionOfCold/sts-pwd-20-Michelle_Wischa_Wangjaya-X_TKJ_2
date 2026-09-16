@@ -30,8 +30,7 @@
 
 ### Kontak / Alamat 
 #### PT Mayora Indah Tbk.
-> Gedung Mayora
->> Jl. Tomang Raya Kav. 21–23, Jakarta Barat
+> Gedung Mayora Jl. Tomang Raya Kav. 21–23, Jakarta Barat
 
 ### Tautan Resmi & Media Sosial
 * [Website Resmi](https://www.mayoraindah.co.id/).
@@ -39,7 +38,7 @@
 * [Halaman Visi & Misi](https://www.mayoraindah.co.id/).
 * [Halaman Kontak](https://www.mayoraindah.co.id/).
 
-### Daftar Sumber Referensi (5)
+### Daftar Sumber Referensi (3)
 1. [Website Resmi Pastinya](https://www.mayoraindah.co.id/).
 2. [Halaman Visi dan Misi](https://www.mayoraindah.co.id/content/visi-misi-perusahaan-35).
 3. [Halaman Identitas](https://www.mayoraindah.co.id/landing/Perusahaan-1)
