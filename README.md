@@ -36,9 +36,7 @@
 
 ### Tautan Resmi & Media Sosial
 * [Website Resmi](https://www.mayoraindah.co.id/).
-* [Halaman Tentang Mayora](https://www.mayoraindah.co.id/).
-* [Halaman Visi & Misi](https://www.mayoraindah.co.id/).
-* [Halaman Kontak](https://www.mayoraindah.co.id/).
+* [Instagram Resmi](https://www.instagram.com/mayoraofficial?stkn=azBlcXM1Mzh1aDQ3)
 
 ### Daftar Sumber Referensi (3)
 1. [Website Resmi Pastinya](https://www.mayoraindah.co.id/).
